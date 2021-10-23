@@ -1,1 +1,2 @@
-This is my up coming soon portfolio website !!!!
+Hi everyone !!
+This is my up coming soon portfolio website.
